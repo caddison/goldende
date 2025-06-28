@@ -11,7 +11,7 @@
 - ✨ **Cutting-Edge Technology** - Stay ahead of the curve
 - 🔒 **Unmatched Security** - Your digital assets, protected
 - 🎯 **Future-Ready Solutions** - Built for tomorrow, available today
-- 🌟 **Real Jobs** - Real Pay! Your Way! For Us By Us!
+- 🌟 **Real Jobs** - Real Pay, Your Way, For Us By Us!
 
 ---
 
