@@ -20,12 +20,10 @@
 🔸 Community Driven
 
 ### 🎉 **JOIN THE MOVEMENT**
-*The future is digital. The choice is golden.*
+*The future is digital. The choice is yours.*
 
-**[⭐ Star this repo]** | **[📢 Spread the Word]**
+**[📢 Spread the Word]**
 
----
-
-***Your vote for innovation starts with a star ⭐***
+***Your vote starts with a star ⭐***
 
 ![IMG_8837](https://github.com/user-attachments/assets/25591101-9535-446e-9644-b53e8e043bbb)
