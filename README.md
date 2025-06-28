@@ -16,24 +16,16 @@
 ---
 
 ### 📋 **OUR PLATFORM**
-🔸 Innovation First
-🔸 Security Always
+🔸 People First
 🔸 Community Driven
 
 ### 🎉 **JOIN THE MOVEMENT**
 *The future is digital. The choice is golden.*
 
-**[⭐ Star this repo]** | **[🍴 Fork & Contribute]** | **[📢 Spread the Word]**
+**[⭐ Star this repo]** | **[📢 Spread the Word]**
 
 ---
 
-### 📊 **CAMPAIGN STATS**
-![GitHub stars](https://img.shields.io/github/stars/yourusername/golden-digital-edge?style=social)
-![GitHub forks](https://img.shields.io/github/forks/yourusername/golden-digital-edge?style=social)
-![GitHub issues](https://img.shields.io/github/issues/yourusername/golden-digital-edge)
-
----
-
-***"Your vote for innovation starts with a star ⭐"***
+***Your vote for innovation starts with a star ⭐***
 
 ![IMG_8837](https://github.com/user-attachments/assets/25591101-9535-446e-9644-b53e8e043bbb)
