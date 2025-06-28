@@ -22,7 +22,7 @@
 ### 🎉 **JOIN THE MOVEMENT**
 *The future is digital. The choice is yours.*
 
-**[📢 Spread the Word]**
+**Spread the Word 📢**
 
 ***Your vote starts with a star ⭐***
 
