@@ -1,6 +1,6 @@
 # 🏆 GOLDEN DIGITAL EDGE 🏆
 
-## **Lock in the Golden Digital Edge - Secure Your Future!**
+## **Lock in the Golden Digital Edge 🔗 Secure Your Future!**
 
 ### 🚀 **THE VISION**
 *Transforming the digital landscape, one innovation at a time.*
