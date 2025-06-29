@@ -12,14 +12,13 @@
 - 🔒 **Unmatched Security** - Your digital assets, protected
 - 🌟 **Real Jobs** - Real Pay, Your Way, For Us By Us!
 
-🔸 People First
+---
+
+### 📋 **OUR PLATFORM**
+People First
 🔸 Community Driven
 
 ### 🎉 **JOIN THE MOVEMENT**
 *The future is digital. The choice is yours.*
-
-**Spread the Word 📢**
-
-***Your vote starts with a star ⭐***
 
 ![IMG_8837](https://github.com/user-attachments/assets/25591101-9535-446e-9644-b53e8e043bbb)
